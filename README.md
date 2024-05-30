@@ -1,1 +1,1 @@
-Stone bridges and culverts were constructed on some roads in the 18th century to facilitate river crossings and improve drainage, enhancing travel safety and reliability.
+Traveling long distances on 18th-century roads was slow and arduous, with average speeds ranging from 3 to 5 miles per hour for horse-drawn vehicles, depending on road conditions.
