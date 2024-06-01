@@ -1,1 +1,1 @@
-The construction of canals and railways in the 19th century provided alternatives to road transportation for long-distance travel and freight transport, reducing reliance on traditional road networks.
+Innovations in road construction materials and techniques, such as the use of asphalt and concrete, emerged in the 19th century, offering more durable and weather-resistant surfaces for roads.
