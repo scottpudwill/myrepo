@@ -1,1 +1,1 @@
-Innovations in road construction materials and techniques, such as the use of asphalt and concrete, emerged in the 19th century, offering more durable and weather-resistant surfaces for roads.
+Travel by horse and carriage was the primary mode of transportation on 18th-century roads, with stagecoaches, wagons, and carriages being common sights on major routes.
