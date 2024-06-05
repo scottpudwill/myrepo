@@ -1,1 +1,1 @@
-The first modern turnpike, the Great North Road in England, was established in the 18th century, featuring improved surfacing and regular maintenance funded by tolls.
+The development of the first traffic signals in the early 20th century improved safety and efficiency at intersections, reducing accidents and congestion on urban roads.
