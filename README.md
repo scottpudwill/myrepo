@@ -1,1 +1,1 @@
-The development of the first traffic signals in the early 20th century improved safety and efficiency at intersections, reducing accidents and congestion on urban roads.
+The rise of tourism in the 19th century, fueled by improvements in transportation and leisure time, created demand for scenic and well-maintained roads in rural and coastal areas.
