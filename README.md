@@ -1,1 +1,1 @@
-The development of the first high-occupancy vehicle (HOV) lanes in the 1970s and 1980s promoted carpooling and public transit use, reducing congestion and pollution on urban roads.
+The development of intelligent transportation systems (ITS) in the late 20th century, including traffic management technologies, dynamic message signs, and vehicle-to-infrastructure communication, improved traffic flow and safety on roads.
