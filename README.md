@@ -1,1 +1,1 @@
-Despite their limitations, 18th-century roads played a crucial role in connecting communities, facilitating trade and travel, and shaping the economic, social, and cultural landscape of the time.
+The construction of the Great Ocean Road in Australia, completed in 1932, is considered one of the world's most scenic coastal drives, attracting tourists and travelers from around the globe.
