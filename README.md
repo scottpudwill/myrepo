@@ -1,1 +1,1 @@
-The development of turnpikes, or toll roads, proliferated in the 19th century, with private companies or local governments collecting fees from travelers to fund road construction and maintenance.
+The construction of the first modern highways, such as the Macadamized National Road in the United States, marked a significant milestone in 19th-century road development, providing a model for future road-building projects.
