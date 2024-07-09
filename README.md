@@ -1,1 +1,1 @@
-Road construction and maintenance were often carried out by local communities, with laborers using simple tools like shovels, picks, and wheelbarrows to repair and improve roads.
+The construction of military roads and strategic transportation routes played a crucial role in military campaigns and logistics during conflicts such as the Napoleonic Wars and the American Civil War.
