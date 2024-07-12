@@ -1,1 +1,1 @@
-The construction of the Trans-Canada Highway, completed in 1962, connected Canada from coast to coast, facilitating transportation and commerce between provinces and regions.
+The width of 18th-century roads varied, with many being narrow and winding, particularly in rural areas, where terrain and property boundaries influenced their layout.
