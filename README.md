@@ -1,1 +1,1 @@
-In urban areas, streets were often narrow and congested, with pedestrians, carts, and animals competing for limited space, leading to traffic jams and safety hazards.
+The development of the first high-occupancy vehicle (HOV) lanes in the 1970s and 1980s promoted carpooling and public transit use, reducing congestion and pollution on urban roads.
