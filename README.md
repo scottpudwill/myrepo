@@ -1,1 +1,1 @@
-The development of the first high-occupancy vehicle (HOV) lanes in the 1970s and 1980s promoted carpooling and public transit use, reducing congestion and pollution on urban roads.
+The 19th century saw significant improvements in road infrastructure, including the widespread adoption of macadam roads, which consisted of compacted layers of crushed stone and gravel.
