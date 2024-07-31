@@ -1,1 +1,1 @@
-The introduction of the first automated toll collection systems in the 20th century, such as electronic toll tags and automatic toll booths, improved efficiency and convenience for drivers on toll roads and bridges.
+The construction of the Great Ocean Road in Australia, completed in 1932, is considered one of the world's most scenic coastal drives, attracting tourists and travelers from around the globe.
